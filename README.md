@@ -1,5 +1,5 @@
 # ☢️ The mind behind: RE:CLEAN
-   # Steam page coming soon
+   - Steam page coming soon
 
     
 
